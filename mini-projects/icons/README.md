@@ -1,1 +1,0 @@
-HTML Mini Project Icons
